@@ -1,4 +1,6 @@
-# 🔴🔵 𝐅𝐑𝐄𝐄 𝐋𝐀𝐁𝐒 𝐑𝐄𝐃 𝐓𝐄𝐀𝐌/𝐁𝐋𝐔𝐄 𝐓𝐄𝐀𝐌 🔵🔴
+# 🔴🔵 𝐅𝐑𝐄𝐄 𝐋𝐀𝐁𝐒 𝐑𝐄𝐃 𝐓𝐄𝐀𝐌/𝐁𝐋𝐔𝐄 𝐓𝐄𝐀𝐌 🔵🔴!
+[1675253893187](https://user-images.githubusercontent.com/88338613/216723642-25c5890a-3b54-4b7f-b0f5-1cdfb95ddee5.jpg)
+
 
 ✨ Attack-Defense - https://attackdefense.com
 ✨ Alert to win - https://alf.nu/alert1
